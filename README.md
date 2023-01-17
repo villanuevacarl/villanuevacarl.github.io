@@ -5,4 +5,4 @@
  
 | Monday  | Tuesday | Wednesday  | Thursday  | Friday |
 | ------  | ------- | ---------- | --------  | ------ |
-| igbibi  | hgrjheh |  ghjkrhghr | ewhheht | uueuer |
+| Bball  | study |  foods | handsome | carl |
